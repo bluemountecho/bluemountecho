@@ -1,6 +1,6 @@
 Hi there 👋
 
-I am Anou Khamtan from Singapore.
+Here, Anou Khamtan is ready to be your friend, adviser, cooperator.
 
 ==============================================
 
