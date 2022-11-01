@@ -1,6 +1,8 @@
 Hi there 👋
 
-Here, Anou Khamtan is ready to be your friend, adviser, cooperator.
+Knowing is not enough. We must apply. Being willing is not enough. We must do.
+Being alone is not enough. We must do it together.
+Here, Anou Khamtan is ready to be your friend, adviser, cooperator to create something great TOGETHER.
 
 ==============================================
 
